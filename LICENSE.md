@@ -1,4 +1,4 @@
-# 
+# VIP low cap gem sniper bot إضافات لـ Mac OS | احترافي low cap gem sniper bot إضافات لـ PC Windows. مع تحسين سعر الغاز و إدارة المحفظة — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
